@@ -1,0 +1,1 @@
+# Adode-Photoshop-Crack-2020
